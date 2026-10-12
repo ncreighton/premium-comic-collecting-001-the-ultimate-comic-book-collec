@@ -1,0 +1,2 @@
+# premium-comic-collecting-001-the-ultimate-comic-book-collec
+You know the exact CGC grade on that key issue, but can you instantly recall what you paid, what it's worth today, and which store you left it in last month? Stop guessing and start tracking like a serious collector.  The Ultimate Comic Book Collection Tracker is the only Notion template built for collectors who treat their books as both passion an
